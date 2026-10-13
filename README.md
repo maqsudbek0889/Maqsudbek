@@ -1,0 +1,2 @@
+# Maqsudbek
+Oquv markaz project 
